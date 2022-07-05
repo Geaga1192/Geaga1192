@@ -1,3 +1,4 @@
+https://debank.com/profile/0xa34356b1a725f9c565b95f14e56396eebde3c06d
 - 👋 Hi, I’m @Geaga1192
 - 👀 I’m interested in .footbal..
 - 🌱 I’m currently learning .otomotif..
